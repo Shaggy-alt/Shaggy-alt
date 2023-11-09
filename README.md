@@ -1,4 +1,4 @@
-### Hi there 👋
+### Howdy! 💻
   Most of my projects here will be related to cybersec with pen-testing in mind. 
 I will show most if not all my projects I have done since I began 2 years ago with instruction on how to replicate. 
 
