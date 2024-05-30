@@ -18,4 +18,6 @@ I do not own any of the tools shown here. I only use them.
  ## This is under construction. please pardon my dust.
 
 
-I have been moving so my updates will be slow at times.
+I have been moving so my updates will be slow at times. 
+
+UPDATE: I have been working 40+hrs a week so I will not post until I have time. Thank you for your understanding.
